@@ -38,4 +38,5 @@ https://beritasewu.com/apa-itu-teknologi-openai-baru-chatgpt/
 https://beritasewu.com/keunggulan-dan-keistimewaan-mitsubishi-xfc-concept/
 https://ozeku.com/automotive/the-advantages-and-featured-in-mitsubishi-xfc-concept/
 https://ozeku.com/technology/what-is-chatgpt-new-ai-technology/
+
 ![image](https://github.com/beritasewu/berita-viral-terbaru/assets/108774518/f07a4cea-f6a9-4b38-93c0-0103978e46db)
