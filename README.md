@@ -38,5 +38,13 @@ https://beritasewu.com/apa-itu-teknologi-openai-baru-chatgpt/
 https://beritasewu.com/keunggulan-dan-keistimewaan-mitsubishi-xfc-concept/
 https://ozeku.com/automotive/the-advantages-and-featured-in-mitsubishi-xfc-concept/
 https://ozeku.com/technology/what-is-chatgpt-new-ai-technology/
-
+https://ozeku.com/health/8-ways-how-to-overcome-sciatica-to-relieve-pain/
+https://ozeku.com/health/sleep-tight-with-deep-sleep-hypnosis/
+https://ozeku.com/health/9-ways-how-to-stop-snoring-while-sleeping/
+https://ozeku.com/health/easy-ways-to-lose-weight-with-yoga/
+https://ozeku.com/health/7-ways-how-to-get-rid-of-sleepiness-when-in-the-office/
+https://ozeku.com/health/heres-6-ways-how-to-get-rid-of-a-cough-quickly/
+https://ozeku.com/health/5-ways-how-to-lucid-dream-easily/
+https://ozeku.com/health/5-ways-how-to-sober-up-fast-from-alcohol/
+https://ozeku.com/health/15-ways-how-to-sleep-fast-to-avoid-insomnia/
 ![image](https://github.com/beritasewu/berita-viral-terbaru/assets/108774518/f07a4cea-f6a9-4b38-93c0-0103978e46db)
