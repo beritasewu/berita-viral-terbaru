@@ -3,7 +3,8 @@ berita viral terbaru seputar teknologi
 https://beritasewu.com/
 https://kipop.org/
 https://kabarinfo.net/
-https://issuu.com/beritasewu
+https://hathawaytearooms.com/
+https://smilesbylyles.com/
 https://go-jekglobal.com/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
 https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
