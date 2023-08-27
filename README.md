@@ -3,6 +3,8 @@ berita viral terbaru seputar teknologi
 https://beritasewu.com/
 https://kipop.org/
 https://kabarinfo.net/
+https://otomotif.live/
+https://scoreup.id/
 https://hathawaytearooms.com/
 https://smilesbylyles.com/
 https://go-jekglobal.com/
