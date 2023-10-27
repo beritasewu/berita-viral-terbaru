@@ -5,9 +5,7 @@ https://kipop.org/
 https://kabarinfo.net/
 https://otomotif.live/
 https://scoreup.id/
-https://hathawaytearooms.com/
-https://smilesbylyles.com/
-https://go-jekglobal.com/
+https://www.ayeslot.com/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
 https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
 https://beritasewu.com/comback-blackpink-siapkan-2-klip-mv-sekaligus-2022/
