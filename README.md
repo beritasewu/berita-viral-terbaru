@@ -6,6 +6,7 @@ https://kabarinfo.net/
 https://otomotif.live/
 https://scoreup.id/
 https://www.ayeslot.com/
+https://heylink.me/wild88slotgacor/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
 https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
 https://beritasewu.com/comback-blackpink-siapkan-2-klip-mv-sekaligus-2022/
