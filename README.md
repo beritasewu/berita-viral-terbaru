@@ -5,6 +5,7 @@ https://kipop.org/
 https://kabarinfo.net/
 https://otomotif.live/
 https://scoreup.id/
+https://metanest.net/
 https://www.ayeslot.com/
 https://heylink.me/wild88slotgacor/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
