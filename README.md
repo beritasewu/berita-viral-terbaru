@@ -7,6 +7,7 @@ https://otomotif.live/
 https://scoreup.id/
 https://metanest.net/
 https://dwhag.com
+https://www.jhp-design.com/
 https://xsorbit3.com
 https://adaku.co.id/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
