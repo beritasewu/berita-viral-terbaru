@@ -45,6 +45,8 @@ https://gadgedin.com/
 https://gemod.org/
 https://rabornzoo.com
 https://runfortheheroes.com
+https://soccerprose.com/
+https://dharmasiriscales.com/wp-content/zorro4d/
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
 https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
 https://beritasewu.com/comback-blackpink-siapkan-2-klip-mv-sekaligus-2022/
