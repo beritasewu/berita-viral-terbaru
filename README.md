@@ -51,6 +51,9 @@ https://lampau.org
 https://mostmetro.net
 https://panditbola.com
 https://viralkan.org
+https://zohaibpc.net/
+https://techsomatic.com
+https://inventyourway.com
 https://rabornzoo.com
 https://runfortheheroes.com
 https://soccerprose.com/
