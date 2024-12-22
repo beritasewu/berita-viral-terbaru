@@ -9,8 +9,6 @@ https://metanest.net/
 https://pmdpromotion.com/
 http://croatiaview.com/
 http://meteorbetlogin.com/
-http://167.71.196.219
-http://157.245.154.164
 https://bimxinh.com/
 https://1upmonitor.com/
 https://bizventure.info/
@@ -69,6 +67,7 @@ https://chinohk.com
 https://noirebnb.com
 https://rogtoto24.com/
 https://www.nationalkuwait.com/
+https://beste-onlinecasino.net
 https://dharmasiriscales.com/wp-content/zorro4d/
 https://wertbookbinding.com/plugins/robopragma
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
