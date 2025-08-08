@@ -1,5 +1,8 @@
 # berita-viral-terbaru
 berita viral terbaru seputar teknologi
+https://knetz.org/
+https://trenzviral.com/
+https://punditliga.com/
 https://beritasewu.com/
 https://kipop.org/
 https://kabarinfo.net/
