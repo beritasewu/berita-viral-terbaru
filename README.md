@@ -55,5 +55,11 @@ https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
 https://beritasewu.com/comback-blackpink-siapkan-2-klip-mv-sekaligus-2022/
 https://beritasewu.com/boyband-korea-bts-akan-ramaikan-piala-dunia-2022-qatar/
 https://github.com/beritasewu/berita-viral-terbaru
+https://knetbuzz.com/jang-won-young-ive-visual-k-pop-generasi-4-yang-bikin-knetz-terpukau/
+https://knetbuzz.com/ahyeon-member-babymonster-perjalanan-panjang-sang-ace-dari-chuncheon-menuju-panggung-dunia/
+https://knetbuzz.com/chiquita-babymonster-idol-termuda-yg-entertainment-dengan-energi-positif-yang-menular/
+https://indonetzen.com/siapa-azela-putri-kenali-lebih-dekat-sosok-mantan-cheerleader-yang-kini-jadi-aktris/
+https://indonetzen.com/ananda-zhafira-dari-isu-tak-direstui-ibunda-okin-hingga-dugaan-sindir-rachel-vennya/
+https://indonetzen.com/profil-lengkap-notnot-lidiawaty-dari-aktris-sinetron-menjadi-ikon-esports-indonesia/
 ![image](https://user-images.githubusercontent.com/108774518/182980329-75992de6-8952-4559-8a0b-e3211821c10e.png)
 
