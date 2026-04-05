@@ -51,6 +51,7 @@ https://indonetzen.com/
 https://bolagaruda.com/
 https://bioskopers.com/
 https://dentalinc.id/
+https://surah.id
 https://www.milanzitko.cz/ochrana-osobnich-udaju
 https://berita-sewu.blogspot.com/2022/08/beritasewu-berita-terbaru-seputar-artis.html
 https://beritasewu.com/mobile-legends-akan-di-blokir-kominfo-imbas-pse/
