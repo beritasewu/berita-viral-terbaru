@@ -46,6 +46,7 @@ https://indonetzen.com/
 https://bolagaruda.com/
 https://bioskopers.com/
 https://dentalinc.id/
+https://pajitotokilat.com
 https://surah.id
 https://github.com/beritasewu/berita-viral-terbaru
 https://knetbuzz.com/jang-won-young-ive-visual-k-pop-generasi-4-yang-bikin-knetz-terpukau/
